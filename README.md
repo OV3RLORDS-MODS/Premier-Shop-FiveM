@@ -1,4 +1,4 @@
-![Description](https://i.ibb.co/QvD1X7s/game.png)
+![Game Screenshot](https://i.ibb.co/QvD1X7s/game.png)
 
 # Premier-Shop-FiveM
 
