@@ -1,5 +1,7 @@
 ![Description](https://i.ibb.co/Tk4XXyv/gam.png)
 
+Premier Shop - Edited By OV3RLORD
+
 I have edited the premier shop near Legion. 
 
 You can always join my discord for news, updates and official support by me and my small team.
